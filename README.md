@@ -1,2 +1,4 @@
 # TrickyTreat
-A discord giveaway bot that is > Santa Wumpus
+storch likes ahegao
+
+*jk Jayti likes it*
